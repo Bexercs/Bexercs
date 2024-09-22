@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on N/A
 - 📫 How to reach me Discord @Bexarcs
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Furtue Bexar County Sheriff Deputy
+- ⚡ Fun fact: Furtue Federal bureau of Investigation agent
 
 <!---
 Bexercs/Bexercs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
